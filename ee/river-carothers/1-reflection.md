@@ -1,4 +1,4 @@
-Sprint-1 Reflection
+<strong>Sprint-1 Reflection</strong>
 
 Taking the time to reflect is important in order to understand what you need to change in order to grow in the future. I have not been taking enough time to reflect lately so I am glad to have this be a part of the curriculum.
 
