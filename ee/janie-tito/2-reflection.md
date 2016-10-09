@@ -1,0 +1,3 @@
+This week I did better at managing my time. I made a real effort to use Toggl each task. I tried to continue using Pomordoro technique and breaking my work up into  25 minute chunks. Sometimes this was difficult to do when I was in the 'zone' and really enjoying the task.  In that situation I just went with it and worked till I got tired. Not ideal long term.
+
+As I go back to work and kids are back at school, I will try and improve my focus and being strict about having my time to myself. I will try to improve covering the concepts in more depth. This week I have been a bit too focused on my portfolio website, although I have really enjoyed having the freedom to look at this properly and start putting together a personal site I really like.
