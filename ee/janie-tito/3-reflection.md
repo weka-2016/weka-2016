@@ -1,0 +1,3 @@
+This week I don't feel like much went right to be honest. I deleted my whole repo and then when I went to push my local files up to the new repo again, something went wrong and they were all deleted. So I had to start my website all over again. In a way, this was good. I learnt some valuable lessons. So I suppose one thing I did well was develop my growth mindset and change my self-talk from negative stuff, to 'well, I learnt a lot through that' and was able to move on. In fact I am more happy with the new website version, its much simpler and easier to build on.  
+
+I think I could have been a lot more patient and taken more time to figure out the solution before trying something in a rush, that turned out to be wrong. But, lesson learnt.
