@@ -1,0 +1,1 @@
+This week I did a good job of asking lots of questions and pushing myself to understand how things worked, but I didn't manage to follow through on making the sounds perfect because I ran out of time. Things to improve are to stay focused and not just make stabs in the dark.
